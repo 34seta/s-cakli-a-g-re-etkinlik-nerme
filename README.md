@@ -1,0 +1,1 @@
+# s-cakli-a-g-re-etkinlik-nerme
